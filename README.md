@@ -5,7 +5,7 @@
 人人影视字幕组不仅提供字幕下载服务，还曾尝试转型为美剧社区，更名为“人人美剧”，并推出客户端。此外，它还曾涉足区块链领域，推出CVN内容价值网络。尽管面临诸多挑战，但人人影视字幕组在字幕翻译领域的贡献仍被许多用户铭记。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/16844.html" target="_blank" ><strong>人人影视字幕组最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
